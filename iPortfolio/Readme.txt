@@ -1,0 +1,1 @@
+This is a copyed website by me so i wrote it in any case u didnt know it ||mhuq||
